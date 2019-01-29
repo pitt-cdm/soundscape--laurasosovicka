@@ -12,7 +12,7 @@ Need: pen clicking  Solution: record her using her pen for writing (Recorded)
 
 Need: study music  Solution: download music that is useful for studying (Recorded)
 
-Need: Food  Solution: microwave beeping to signify food is ready 
+Need: Food  Solution: microwave beeping to signify food is ready (Recorded)
 
 Need: shower  Solution: shower water running (Recorded)
 
