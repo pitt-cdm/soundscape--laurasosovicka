@@ -34,4 +34,4 @@ hear the water running and going into the drain. After her shower, you hear her 
 
 and a ping of an incoming text. Then she resumes typing before putting her phone down for the night and yawning, 
 
-signaling the end of her day. 
+signaling the end of her day 
