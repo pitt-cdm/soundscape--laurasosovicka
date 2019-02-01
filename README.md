@@ -1,10 +1,10 @@
 Living the Life of Liv
 
-This Soundscape is about me following my roommate, Liv, throughout her day. You will see what her daily routine consists of 
+This Soundscape is about me following my roommate, Liv, throughout her day. You will see what her daily routine consists  
 
-for a neroscience major. At the beginning, you hear her customized iPhone alarm go off, along with her saying "ugh" in dis- 
+of as a neroscience major. At the beginning, you hear her customized iPhone alarm go off, along with her saying "ugh" in  
 
-may. She ignores it, and rustling of sheets fills the silence. Then her alarm goes off a second time and she gives in by 
+dismay. She ignores it, and rustling of sheets fills the silence. Then her alarm goes off a second time and she gives in by 
 
 saying "fine," and gets up. You hear her as she gets ready for her day. The front door open along with sounds of brushing 
 
@@ -30,8 +30,8 @@ in the background now as well, along with the sounds of page flipping and pem wr
 
 comes back and you hear Liv opening  the microwave and getting her food. She opens the shower curtain and turns on the 
 
-shower. You can hear the water running and going into the drain. After her shower, you hear her typing out a message on 
+shower. You can hear the water running and going into the drain. After her shower, you hear her typing out a message 
 
-her phone, and a ping of an incoming text. Then she resumes typing before putting her phone down for the night and yawning, 
+on her phone, and a ping of an incoming text. Then she resumes typing before putting her phone down for the night and 
 
-signaling the end of her day. 
+yawning, signaling the end of her day. 
